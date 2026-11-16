@@ -13,6 +13,37 @@ First comment: Aap Chand tak kis cheez pe jaate: jhaadu, rocket ya auto? Part 3 
 YouTube title: Bhoot chale Chand par, jhaadu atak gayi! | Bhoot Chand Par 2/9
 YouTube description: same as the Instagram caption. Audience: "No, it's not made for kids". Altered/synthetic content: No. Add to playlist "Bhoot Chand Par".
 
+## 16:00  FULL EPISODE (long video) -> YouTube only
+Video: 1600_bhoot_full_episode.mp4   Thumbnail: 1600_bhoot_full_episode_thumbnail.jpg
+YouTube title: Agar saare BHOOT Chand par rehne lagein? 👻🌕 (Asli science) | Andar Kya Hai? #2
+Description:
+Raat ke 12 baje, mohalle mein power cut... aur saare bhoot pareshaan: "Ab koi darta hi nahi!" To bhoot, chudail aur Budha bhoot chal pade Chand par rehne, aur saath mein mohalle ki sabse bahadur bachchi Puchku!
+
+Kahani funny hai, par science 100% asli:
+- Chand ~3,84,400 km door, Chandrayaan-3 ko ~40 din lage
+- Chand par ek raat ~14 din lambi, -170°C se +120°C tak
+- Hawa nahi: jhaadu nahi udegi, cheekh sunai nahi degi, aur pairon ke nishaan lakhon saal rahenge
+- Asli 'ghost particles' (neutrino): har second ~100 trillion aapke aar-paar
+- Bhatakte planet (rogue planets) aur adrishya dark matter (~85%)
+
+Chapters:
+0:00 Mohalla mein power cut
+1:04 1. Safar
+1:56 2. Chand ki raat
+2:52 3. Ulte pair
+3:36 4. Cheekh
+4:20 5. Asli bhoot: ghost particles
+5:04 6. Bhatakti aatma
+5:46 7. Adrishya: dark matter
+6:32 8. Wapas mohalla
+
+Kahani pasand aayi? Subscribe karo: Mohalla 2040, har din ek nayi kahani!
+Narration, original animation, music and sound effects: Mohalla 2040.
+
+#BhootChandPar #AndarKyaHai #Bhoot #Moon #ScienceInHindi
+Category: Education. Audience: not made for kids. Altered/synthetic content: No. Add to playlist "Bhoot Chand Par".
+First comment (pin it): Aapko sabse mazedaar part kaunsa laga? Broom atakna, pressure cooker, chudail ke ulte pair, ya ghost particles? Comment karo. Aisi aur kahaniyon ke liye Subscribe karo
+
 ## 19:00  India ka paani Part 3  -> Instagram Reel + YouTube Short
 Video: 1900_delhi_dhasaan.mp4   Cover: 1900_delhi_dhasaan_cover.jpg
 (If a newer file 1900_delhi_dhasaan_voice.mp4 appears in this folder, use that one instead.)
