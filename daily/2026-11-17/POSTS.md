@@ -1,5 +1,19 @@
 # Mohalla 2040 posting pack: Tue 2026-11-17 (times IST)
 
+## 12:30  Leonid meteor shower TONIGHT  -> Instagram Reel + YouTube Short
+Video: 1230_taare_aaj_raat.mp4   Cover: 1230_taare_aaj_raat_cover.jpg
+Instagram caption:
+Aaj raat Leonid meteor shower hai, aur ye poore India se dikhega! 12 baje ke baad se subah 5:30 tak aasmaan dekho, peak lagbhag 5:15 baje hai. Andheri jagah par ghante mein lagbhag 10-15 tootte taare dikh sakte hain (sheher ki roshni mein kam). Mazedaar baat ye hai ki ye taare hain hi nahi: Comet Tempel-Tuttle ki chhodi hui ret jitni chhoti dhool hai, jo 71 km har second ki speed se hamari hawa mein jal jaati hai. Telescope ki zaroorat nahi, bas poorab ki taraf dekho aur aankhon ko 15-20 minute do. Puchku ki tarah aap kya wish maangoge? ✨
+
+Leonids 2026 timing: Space.com, EarthSky, Star Walk. Parent comet and speed: NASA.
+Original animation, edit and sound: Mohalla 2040.
+Follow kar lo, roz ek naya aasmaan ka sach
+
+#AasmaanKaSach #LeonidMeteorShower #ToottaTaara #ScienceInHindi #Mohalla2040
+First comment: Aaj raat kitne tootte taare dikhe? Sheher ka naam aur number likho. Aise aur aasmaan ke sach ke liye follow kar lo
+YouTube title: Aaj Raat Aasmaan Se Taare Girenge! 🌠 | Aasmaan Ka Sach #17
+Audience: not made for kids. Altered/synthetic content: No.
+
 ## 14:00  Bhoot Chand Par, Part 2/9  -> Instagram Reel + YouTube Short
 Video: 1400_bhoot_part2.mp4   Cover: 1400_bhoot_part2_cover.jpg
 Instagram caption:
